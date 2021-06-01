@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @wrongsock
-- 👀 I’m interested in nothing
+- 👀 I’m interested in nothingness
 - 🌱 I’m currently learning emptyness.
 - 💞️ I’m looking to collaborate on the void.
 - 📫 How to reach me space.
